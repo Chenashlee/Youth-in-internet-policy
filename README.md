@@ -9,7 +9,7 @@ I am working on building a community of young people in the Southern African reg
 # What's Unique about this
 The idea is unique in that it aims to build a network for young people from diverse backgrounds to support each other contributing to internet policies – creating a space where they lead and shape the policy engagement.
 
-# How you can coprogramntribute
+# How you can contribute
 I would like for people to sign up who might be interested in having a virtual meet up and be connected to other initiatives working with young people in the policy space
 
 # Wishlist

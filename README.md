@@ -1,4 +1,4 @@
-# Youth-in-internet-policy {YiIPO)
+# Youth-in-internet-policy (YiIPO)
 
 Hello! Mhoro! Unjani! Eita! 
 
